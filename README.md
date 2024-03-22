@@ -1,1 +1,1 @@
-### ✨ Front-End Developer! ✨
+### ✨ Full Stack Javascript Developer! ✨
